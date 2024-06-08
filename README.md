@@ -8,22 +8,16 @@ Time open:
 Everyday from 7am to 11am
 
 Website Link:
-(https://authentic-nasi-lemak-ptyowka.gamma.site/)
+(https://nasi-lemak-experience-bz0kmcu.gamma.site/)
 
 Location:
-Street - Kampung Sijangkang bt8 42500 Telok Panglima Garang
-State/province/area - Selangor
-Zip code - 42500
+Street - 123 Jalan Petaling, Chinatown, Kuala Lumpur
+State/province/area - Kuala Lumpur 
+Zip code - 50100
 
 Phone Number:
 +60 11- 123 10561
 
-Ingredients:
-Coconut Milk,Spice Blend,Pandan leaf
-
-Programs:
-No refunds and returns
-
 Promotions:
-Crispy Fried Chicken 20% off (End at 28th March)
+Crispy Fried Chicken 20% off (Every Friday)
 
